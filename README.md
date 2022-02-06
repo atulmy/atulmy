@@ -5,7 +5,7 @@
 2022 Desk setup:
 - [ErgoYou Height Adjustable Table Desk](https://www.amazon.in/gp/product/B08CSL1RMV/)
 - [Apple MacBook Pro (16-inch)](https://www.amazon.in/gp/product/B081JWZQJB/)
-- [LG Ultrafine Display Ergo 4k](https://www.amazon.in/gp/product/B08HK7BTYJ)
+- [LG Ultrafine Display Ergo 4k Monitor](https://www.amazon.in/gp/product/B08HK7BTYJ)
 - [HyperX Alloy Origins Mechanical Keyboard](https://www.amazon.in/gp/product/B07W86N3JV)
 - [Razer Basilisk X Hyperspeed Wireless Mouse](https://www.amazon.in/Razer-Basilisk-Hyperspeed-Wireless-Gaming/dp/B082YF43GQ/)
-- [Bose QuietComfort 35 II ](https://www.amazon.in/gp/product/B0756CYWWD/)
+- [Bose QuietComfort 35 II Headphones](https://www.amazon.in/gp/product/B0756CYWWD/)
